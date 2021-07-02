@@ -1,1 +1,1 @@
-# doge-cry-vazir
+# doge-cryp-wazir
